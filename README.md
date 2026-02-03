@@ -163,7 +163,7 @@ I offer custom setup services:
 - ✅ **Premium Setup ($200)** - Hosted version + email/Discord alerts + 30-day support
 - ✅ **Business Package ($500+)** - White-label solution for recruiters/agencies
 
-**Contact:** [https://www.fiverr.com/s/jjD5m0w] |
+**Contact:** [https://www.fiverr.com/gusdabus] |
 
 ---
 
